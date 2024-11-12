@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wyachu25
-- 👀 I’m interested in Pokemon, nerdy stuff, CG5, and learning python code
+- 👀 I’m interested in Pokemon, nerdy stuff, CG5, hatsune miku and anime, and learning python code
 - 🌱 I’m currently learning python code
 - 💞️ I’m looking to stea- i mean collaborating with your guys code
 - 📫 How to reach me: you dont leave me alone
